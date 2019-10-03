@@ -1,1 +1,1 @@
-Sotre the references to bibliographies.
+Sotre the reference bibliographies to my research.
